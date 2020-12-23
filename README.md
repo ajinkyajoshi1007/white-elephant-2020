@@ -3,7 +3,7 @@
 This is where we will be tracking out commits for White Elephant. I am assuming we would just add a comment every time someone takes or opens a gift. 
  	
 Ajinkya Joshi	1 
-Gift Link: 
+Gift Link: YUhSMGNITTZMeTkzZDNjdVlXMWhlbTl1TG1OdmJTOUhhV1owY3kxVGRHRnBibXhsYzNNdFRXRnVhV04xY21VdGJHVmhkR2hsY2kxUVpYSnpiMjVoYkM5a2NDOUNNRGRRU2toWlVrNVJMM0psWmoxemNsOHhYekkxUDJOeWFXUTlNVlpHV1RJMlJsZExNMEZHU0Naa1kyaHBiR1E5TVNaclpYbDNiM0prY3oxbmFXWjBLM05sZEN0MWJtUmxjaXN5TUN0a2IyeHNZWEp6Sm5GcFpEMHhOakE0TmpnM056STVKbk53Y21WbWFYZzlaMmxtZEN0elpYUXJkVzVrWlhJckpUSkRZWEJ6SlRKRE1qVXdKbk55UFRndE1qVT0=
 Stolen by: 
 Stolen by:
 Stolen by: 
